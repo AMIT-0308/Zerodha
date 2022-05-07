@@ -1,2 +1,0 @@
-# Zerodha
-ihgvvg
